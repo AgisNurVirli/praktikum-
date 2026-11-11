@@ -1,1 +1,1 @@
-# praktikum-
+# AgisNurVirli.github.io
